@@ -1,1 +1,0 @@
-# Zerocord-Privacy-policy
